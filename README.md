@@ -1,16 +1,20 @@
-## Hi there 👋
+»»————> 𝐹𝑖𝑧𝑧𝑦𝐹𝑟𝑜𝑔 <————««
 
-<!--
-**FizzyFrog/FizzyFrog** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+❥ : 𝙰𝚕𝚕 𝙰𝚋𝚘𝚞𝚝 𝙼𝚎 ❢ ~ 🦭
 
-Here are some ideas to get you started:
+❢ ~ 🍦 𝟷𝟽 - 𝙶𝚊𝚢 : ʚɞ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+❥ : 𝙸𝚖𝚙𝚘𝚛𝚝𝚊𝚗𝚝 𝙸𝚗𝚏𝚘 𝙱𝚎𝚕𝚘𝚠 ❢ ~ 🦈 
+
+<img width="438" height="271" alt="𝚘𝚣𝚣𝚏𝚛𝚘𝚐" src="https://media1.tenor.com/m/hJcmdbzaE2AAAAAd/helluva-boss-fizzarolli.gif" />
+
+
+# 🚨 : 𝐃𝐍𝐈 , 𝐈𝐍𝐓 + 𝐁𝐘𝐈 
+
+🫏 ~ ⚠ : 𝐃𝐍𝐈 𓆩 ❢ 𓆪 𝙰𝚗𝚐𝚎𝚕𝙼𝚘𝚝𝚑 , 𝚅𝚎𝚎𝚜 𝚜𝚞𝚙𝚙𝚘𝚛𝚝𝚎𝚛𝚜, 𝙿𝚛𝚘𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜, <𝟷𝟼 𝚏𝚘𝚛 𝙲+𝙷, <𝟷𝟺 𝙸𝚗 𝚐𝚎𝚗𝚎𝚛𝚊𝚕
+
+💚 : 𝐈𝐍𝐓 𓆩 ❢ 𓆪 𝙾𝚣𝚣𝙵𝚛𝚘𝚐, 𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑, 𝙷𝚞𝚜𝚔𝚎𝚛𝚍𝚞𝚜𝚝, 𝚂𝚝𝚘𝚕𝚒𝚝𝚣, 𝚂𝚝𝚊𝚛𝙾𝚠𝚕 /𝙿 (𝚅𝚊𝚜𝚜𝚊𝚐𝚘 & 𝚂𝚝𝚘𝚕𝚊𝚜), 𝙱𝚕𝚘𝚘𝚗𝚊 /𝙿 (𝙻𝚘𝚘𝚗𝚊 & 𝙱𝚕𝚒𝚝𝚣) ~ ʚ🧡ɞ
+
+🎭 : 𝐁𝐘𝐈 𓆩 ❢ 𓆪 𝙸 𝚍𝚘𝚗'𝚝 𝚝𝚊𝚕𝚔 𝚊 𝚕𝚘𝚝 𝚒𝚏 𝚢𝚘𝚞 𝚍𝚘𝚗'𝚝! 𝙸 𝚊𝚖 𝚟𝚎𝚛𝚢 𝚎𝚡𝚙𝚛𝚎𝚜𝚜𝚒𝚟𝚎 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚊𝚌𝚝𝚒𝚘𝚗𝚜, 𝚒𝚏 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚋𝚘𝚝𝚑𝚎𝚛𝚜 𝚖𝚎 𝚊𝚗𝚍 𝚒𝚝'𝚜 𝚗𝚘𝚝 𝚝𝚘𝚘 𝚖𝚞𝚌𝚑, 𝚖𝚢 𝚊𝚌𝚝𝚒𝚘𝚗𝚜 𝚠𝚒𝚕𝚕 𝚎𝚡𝚙𝚛𝚎𝚜𝚜 𝚒𝚝 𝚖𝚘𝚛𝚎 𝚝𝚑𝚊𝚗 𝚖𝚢 𝚠𝚘𝚛𝚍𝚜, 𝚒𝚏 𝚝𝚑𝚒𝚜 𝚋𝚘𝚝𝚑𝚎𝚛𝚜 𝚢𝚘𝚞 𝚒𝚍𝚔 𝚠𝚑𝚊𝚝 𝚝𝚘 𝚝𝚎𝚕𝚕 𝚞.
+
+<img width="438" height="271" alt="staticbelle-vox" src="𝚑𝚝𝚝𝚙𝚜://𝟼𝟺.𝚖𝚎𝚍𝚒𝚊.𝚝𝚞𝚖𝚋𝚕𝚛.𝚌𝚘𝚖/𝟸𝟸𝚍𝚏𝟻𝟾𝚍𝚊𝟾𝟶𝟼𝚋𝚎𝟽𝟾𝚋𝟺𝚎𝚏𝟾𝟸𝚊𝟼𝟹𝟾𝟺𝟸𝟶𝟸𝟻𝚊𝚏/𝚌𝟼𝟶𝟼𝚍𝟹𝟻𝚋𝚊𝚍𝟾𝟺𝟿𝚌𝚋𝟺-𝟼𝚋/𝚜𝟺𝟶𝟶𝚡𝟼𝟶𝟶/𝟶𝚎𝚍𝟹𝚍𝚊𝟾𝟼𝚍𝚏𝟶𝚌𝚎𝟶𝟹𝚎𝟿𝟽𝟽𝟹𝚌𝟼𝚍𝟶𝚏𝟻𝟷𝟼𝟺𝚎𝟹𝚎𝟶𝟻𝟽𝟿𝚌𝚋𝟶𝟼.𝚐𝚒𝚏" />
