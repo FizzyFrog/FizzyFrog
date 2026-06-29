@@ -17,4 +17,4 @@
 
 🎭 : 𝐁𝐘𝐈 𓆩 ❢ 𓆪 𝙸 𝚛𝚎𝚌𝚒𝚙𝚛𝚘𝚌𝚊𝚝𝚎 𝚎𝚗𝚎𝚛𝚐𝚢! 𝙸 𝚊𝚖 𝚟𝚎𝚛𝚢 𝚎𝚡𝚙𝚛𝚎𝚜𝚜𝚒𝚟𝚎 𝚠𝚒𝚝𝚑 𝚖𝚢 𝚊𝚌𝚝𝚒𝚘𝚗𝚜, 𝚒𝚏 𝚜𝚘𝚖𝚎𝚘𝚗𝚎 𝚋𝚘𝚝𝚑𝚎𝚛𝚜 𝚖𝚎 𝚊𝚗𝚍 𝚒𝚝'𝚜 𝚗𝚘𝚝 𝚎𝚗𝚘𝚞𝚐𝚑 𝚏𝚘𝚛 𝚊 𝚗𝚎𝚎𝚍 𝚝𝚘 𝚜𝚙𝚎𝚊𝚔, 𝚖𝚢 𝚊𝚌𝚝𝚒𝚘𝚗𝚜 𝚠𝚒𝚕𝚕 𝚎𝚡𝚙𝚛𝚎𝚜𝚜 𝚒𝚝 𝚖𝚘𝚛𝚎 𝚝𝚑𝚊𝚗 𝚖𝚢 𝚠𝚘𝚛𝚍𝚜, 𝚒𝚏 𝚝𝚑𝚒𝚜 𝚋𝚘𝚝𝚑𝚎𝚛𝚜 𝚢𝚘𝚞 𝚒𝚍𝚔 𝚠𝚑𝚊𝚝 𝚝𝚘 𝚝𝚎𝚕𝚕 𝚞 𝚑𝚘𝚗𝚎𝚜𝚝𝚕𝚢! 𝙸'𝚖 𝚔𝚒𝚗𝚍 𝚒𝚏 𝚞𝚛 𝚔𝚒𝚗𝚍 𝚝𝚘 𝚖𝚎 𝚝𝚑𝚘𝚞𝚐𝚑!
 
-<img width="438" height="271" alt="𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑" src="https://static.wikia.nocookie.net/shipping/images/a/a8/Vox_and_Valentino_flirting.png/revision/latest/scale-to-width-down/985?cb=20260211153730" />
+<img width="438" height="271" alt="𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑" src="https://64.media.tumblr.com/6189d9d3e2efe9502a924f578dc2964b/c61b33ad92137e12-89/s540x810/2732eae80b37c0386cc8edde650bfebbb1318d22.gifv" />
