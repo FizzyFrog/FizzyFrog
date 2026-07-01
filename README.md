@@ -23,4 +23,4 @@
 
 𝙸𝚏 𝚢𝚘𝚞 𝚑𝚊𝚟𝚎 𝚊𝚗 𝚘𝚙𝚒𝚗𝚒𝚘𝚗 𝚘𝚗 𝚖𝚢 𝚐𝚒𝚝𝚑𝚞𝚋, 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚑𝚎𝚊𝚍 𝚘𝚟𝚎𝚛 𝚝𝚘 𝚢𝚘𝚞𝚛 𝚗𝚘𝚝𝚎𝚜 𝚊𝚙𝚙 𝚊𝚗𝚍 𝚠𝚛𝚒𝚝𝚎 𝚒𝚝 𝚍𝚘𝚠𝚗 𝚝𝚑𝚎𝚛𝚎!
 
-<img width="438" height="271" alt="𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑" src="https://64.media.tumblr.com/6189d9d3e2efe9502a924f578dc2964b/c61b33ad92137e12-89/s540x810/2732eae80b37c0386cc8edde650bfebbb1318d22.gifv" />
+<img width="438" height="271" alt="𝚂𝚝𝚊𝚝𝚒𝚌𝙼𝚘𝚝𝚑" src="https://64.media.tumblr.com/6189d9d3e2efe9502a924f578dc2964b/c61b33ad92137e12-89/s540x810/2732eae80b37c0386cc8edde650bfebbb1318d22.gif" />
